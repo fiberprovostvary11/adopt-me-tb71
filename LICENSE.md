@@ -1,4 +1,4 @@
-
+Experience adopt me like never before with vip adopt me Scripts, the #1 Script. Includes auto-heal and auto-collect for unbeatable performance.
 
 
 
